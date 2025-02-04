@@ -10,7 +10,8 @@ At KillerService, we specialize in delivering top-tier solutions to meet your ne
 📞 Contact Us
 
 📧 Email: Fiebe@killerservice.win
-💬 Discord: Join Our Community
+💬 Discord: https://discord.gg/HEn5je3EfG
+ Join Our Community
 
 🔗 Connect With Us
  Stay updated on our latest developments and services. Let’s work together to create something amazing!
